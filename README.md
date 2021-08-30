@@ -7,3 +7,4 @@ Repository ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 Berikut daftar Volunter yang diterima:
 
 * Dikman Satya Nugraha, [Linkedin](https://www.linkedin.com/in/dikman-satya-nugraha-b645aa1b2/).
+* Dikman Satya Nugraha, [Facebook](https://web.facebook.com/dikmansn.2282).
